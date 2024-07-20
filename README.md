@@ -44,6 +44,10 @@ My name is Gurshan Singh Deol. I passed my 12 from S.K.S.S International Public 
 
 • Athlete
 
+## Excel Certificate ##
+
+
+
 ## Contact ##
 
 Email:- deolgurshan25@gmail.com
