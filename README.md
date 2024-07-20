@@ -46,6 +46,7 @@ My name is Gurshan Singh Deol. I passed my 12 from S.K.S.S International Public 
 
 ## Excel Certificate ##
 
+![IMG_9307](https://github.com/user-attachments/assets/2dae6327-ff9f-4238-8c7a-cdc2c3a4da42)
 
 
 ## Contact ##
